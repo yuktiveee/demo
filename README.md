@@ -1,3 +1,3 @@
 # demo
 <br>
-Author-Yukti Thakral
+Author-Yukti Thakral apna college
